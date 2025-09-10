@@ -8,5 +8,5 @@ The name's Waruguru Mundia!
 - 💬 Ask me about ...
 - 📫 How to reach me: Email: wguru.mundia@gmail.com | LinkedIn: https://www.linkedin.com/in/aurelia-mundia-3bb1a5361/
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: Tomato flavour crisps are a tastebud atrocity TT!
+- ⚡ Fun fact: Tomato flavoured crisps are a tastebud atrocity TT!
 
